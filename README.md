@@ -1,5 +1,7 @@
-### Hi there 👋
-
+_bem vindos ao perfil do kaka_ 🖤💙
+- estudante do sonia
+- futuro jogador
+  
 <!--
 **kauansilva08/kauansilva08** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
